@@ -1,5 +1,3 @@
-#JOBIFY PORTAL BY JOHNSMILGA
-
 Support
 Find the App Useful? You can always buy me a coffee
 
